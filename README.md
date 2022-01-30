@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AskarisCyberSecurity
-- 👀 I’m interested in coding and in particualr websites 
+- 👀 I’m interested in coding and in particular websites 
 - 🌱 I’m currently learning the basics 
 - 💞️ I’m looking to collaborate on deisgns 
 - 📫 How to reach me on here
